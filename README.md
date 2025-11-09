@@ -21,6 +21,10 @@ Some of the mafia prostitutes involved in NCAA sports had exposure to the NXIVM 
 
 https://www.miaminewtimes.com/news/alejandro-sanzs-wifes-miami-school-closed-by-state-tied-to-nxivm-sex-cult-founder-10295903/
 
+In other cases where criminals involved in racketeering were convicted, there was no subsequent presidential commutation, but the courts martial are presided over by officers under the president's command.
+
+https://www.navytimes.com/news/your-navy/2024/05/21/felony-convictions-of-5-retired-officers-dismissed-in-fat-leonard-case/
+
 
 
 Everyone noticed when Page made the top ten richest list. In hindsight, this is the paper, notice that he went off to study at Chelsea Clinton's university and all of the attention to Bill Clinton's feelings and the utility in the engine. I was in Kyiv just after Hillary Clinton left the state department. I saw the new state department complex, and the Google complex. It was the largest embassy in the region if not the world. Really huge. Google's operations in Ukraine were built, to address the larger market, to deliver Russian language services to the Russian Federation.
