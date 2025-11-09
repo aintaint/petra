@@ -21,9 +21,12 @@ Some of the mafia prostitutes involved in NCAA sports had exposure to the NXIVM 
 
 https://www.miaminewtimes.com/news/alejandro-sanzs-wifes-miami-school-closed-by-state-tied-to-nxivm-sex-cult-founder-10295903/
 
-In other cases where criminals involved in racketeering were convicted, there was no subsequent presidential commutation, but the courts martial are presided over by officers under the president's command, these cases were not tried until Obama left office.
+
+The reality is that many of these crime cells also prey on military pay systematically. On the west coast, it might be a majority of the strip clubs all from Seattle to San Diego are run by or at least very much integrated into the circuit under the control of the Seattle Crime Family. But that's a domestic mafia. A foreign mafia in much the same conduct is automatically guilty of esponage, a capital crime. Courts martial are presided over by officers under the president's command.
 
 https://news.usni.org/2017/03/16/timeline-fat-leonard-case
+
+Many cases were never tried, were covered up, many officers taking early retirement. Information never published in the press. If it's the president's prerogative to try cases involving espionage, a civilian is under no obligation to witthold knowledge of the actors from every foreign government in the world.
 
 Several of the convictions were vacated by a civilian court on Biden's watch.
 
