@@ -13,6 +13,14 @@ Everyone noticed when Page made the top ten richest list. In hindsight, this is 
 http://infolab.stanford.edu/~backrub/google.html
 
 
+Barbara Boxer vacated her senate seat after moving out of Marin County, the seat was quickly occupied by Kamala Harris. Harris was very helpful to Google, and Google was very helpful to Barack Obama, and Harris was apparently a favorite of Obama's despite her lack of ability or concern.
+
+https://www.marinij.com/2006/07/19/marins-boxer-era-officially-is-over/
+
+Boxer was a resident of Corte Madera. 
+
+
+
 These kinds of things are becoming more common around the world, seems that the Calabrian trash are trying to worganize the German trash.
 
 https://www.eurojust.europa.eu/news/investigators-roll-mafia-style-organisation-italy-and-germany
