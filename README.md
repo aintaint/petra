@@ -13,6 +13,16 @@ Everyone noticed when Page made the top ten richest list. In hindsight, this is 
 http://infolab.stanford.edu/~backrub/google.html
 
 
+As it happens, Larry's parents were actually Ukrainian-American faculty members at Michigan State University, surprisingly enough, in the engineering department, and of all things, computer science. MSU's Department of Linguistics is actually housed in the Slavic Languages center, the chair of that department was until the mid-90s a family friend of a friend. Field school in Russian in the 70s for State Department employees and CIA analysts was often held on the campus.
+
+https://www.politico.com/magazine/story/2018/03/25/vietnam-war-secret-msu-michigan-state-217705/
+
+https://vietnamproject.archives.msu.edu/collections/
+
+In the era prior to his assuming control of the Government of South Vietnam, for example, Ngô Đình Diệm was actually a factulty member at MSU in an advisory program with funding from the Eisenhower Administration.
+
+
+
 Barbara Boxer vacated her senate seat after moving out of Marin County, the seat was quickly occupied by Kamala Harris. Harris was very helpful to Google, and Google was very helpful to Barack Obama, and Harris was apparently a favorite of Obama's despite her lack of ability or concern.
 
 https://www.marinij.com/2006/07/19/marins-boxer-era-officially-is-over/
