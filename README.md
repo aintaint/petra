@@ -6,6 +6,10 @@ In his plea he discusses mostly his involvement in cocaine trafficking. Realize 
 
 https://mexiconewsdaily.com/news/sinaloa-cartel-el-mayo-zambada-confess-us-court/
 
+It's interesting that "Freeway" Rick Ross, backpedals here in 1996, there's a lot of information out on the web addressing black readers presenting the crack epidemic in American cities as being a CIA operation backing anticommunist forces. Of course it was all delivered through Colombia from Peru supporting communist insurgents. It would be that maybe the mafia was playing both sides of the civil wars everywhere to weaken all states to criminal influence, so of course, you don't rat out your friends to the common enemy.
+
+https://www.washingtonpost.com/archive/politics/1996/11/16/drug-dealer-who-said-cia-aided-contra-traffickers-alters-claim/331ce857-0cb5-417d-a8df-4fbae180cfd8/
+
 
 
 Everyone noticed when Page made the top ten richest list. In hindsight, this is the paper, notice that he went off to study at Chelsea Clinton's university and all of the attention to Bill Clinton's feelings and the utility in the engine. I was in Kyiv just after Hillary Clinton left the state department. I saw the new state department complex, and the Google complex. It was the largest embassy in the region if not the world. Really huge. Google's operations in Ukraine were built, to address the larger market, to deliver Russian language services to the Russian Federation.
