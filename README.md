@@ -19,7 +19,7 @@ https://www.politico.com/magazine/story/2018/03/25/vietnam-war-secret-msu-michig
 
 https://vietnamproject.archives.msu.edu/collections/
 
-In the era prior to his assuming control of the Government of South Vietnam, for example, Ngô Đình Diệm was actually a factulty member at MSU in an advisory program with funding from the Eisenhower Administration.
+In the era prior to his assuming control of the Government of South Vietnam, for example, Ngô Đình Diệm was actually a faculty member at MSU in an advisory program with funding from the Eisenhower Administration.
 
 
 
