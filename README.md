@@ -21,6 +21,7 @@ https://vietnamproject.archives.msu.edu/collections/
 
 In the era prior to his assuming control of the Government of South Vietnam, for example, Ngô Đình Diệm was actually a faculty member at MSU in an advisory program with funding from the Eisenhower Administration.
 
+Eisenhower himself warned against the "military industrial complex" in his farewell speech. I think as an Army general he understood the tendency of organized criminals to select long, protracted, expensive and inconclusive wars without end.
 
 
 Barbara Boxer vacated her senate seat after moving out of Marin County, the seat was quickly occupied by Kamala Harris. Harris was very helpful to Google, and Google was very helpful to Barack Obama, and Harris was apparently a favorite of Obama's despite her lack of ability or concern.
