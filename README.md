@@ -21,9 +21,11 @@ Some of the mafia prostitutes involved in NCAA sports had exposure to the NXIVM 
 
 https://www.miaminewtimes.com/news/alejandro-sanzs-wifes-miami-school-closed-by-state-tied-to-nxivm-sex-cult-founder-10295903/
 
-In other cases where criminals involved in racketeering were convicted, there was no subsequent presidential commutation, but the courts martial are presided over by officers under the president's command, and they were not tried until Obama left office. Several of the convictions were vacated by a civilian court on Biden's watch.
+In other cases where criminals involved in racketeering were convicted, there was no subsequent presidential commutation, but the courts martial are presided over by officers under the president's command, these cases were not tried until Obama left office.
+https://news.usni.org/2017/03/16/timeline-fat-leonard-case
 
-[https://www.navytimes.com/news/your-navy/2024/05/21/felony-convictions-of-5-retired-officers-dismissed-in-fat-leonard-case/](https://news.usni.org/2017/03/16/timeline-fat-leonard-case)
+Several of the convictions were vacated by a civilian court on Biden's watch.
+https://www.navytimes.com/news/your-navy/2024/05/21/felony-convictions-of-5-retired-officers-dismissed-in-fat-leonard-case/
 
 
 
