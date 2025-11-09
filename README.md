@@ -8,6 +8,8 @@ https://mexiconewsdaily.com/news/sinaloa-cartel-el-mayo-zambada-confess-us-court
 
 It's interesting that "Freeway" Rick Ross, backpedals here in 1996, there's a lot of information out on the web addressing black readers presenting the crack epidemic in American cities as being a CIA operation backing anticommunist forces. Of course it was all delivered through Colombia from Peru supporting communist insurgents. It would be that maybe the mafia was playing both sides of the civil wars everywhere to weaken all states to criminal influence, so of course, you don't rat out your friends to the common enemy.
 
+Los Angeles after Miami, evidently, via Nicaraguan distributors became the major hub into the US for cocaine during the "Pizza Connection" years in the east.
+
 https://www.washingtonpost.com/archive/politics/1996/11/16/drug-dealer-who-said-cia-aided-contra-traffickers-alters-claim/331ce857-0cb5-417d-a8df-4fbae180cfd8/
 
 
