@@ -13,6 +13,15 @@ Los Angeles after Miami, evidently, via Nicaraguan distributors became the major
 https://www.washingtonpost.com/archive/politics/1996/11/16/drug-dealer-who-said-cia-aided-contra-traffickers-alters-claim/331ce857-0cb5-417d-a8df-4fbae180cfd8/
 
 
+In Miami unfortunately much of the news still involves activity through the strip clubs managed by crime families from from New York. The UMiami booster scandal involved furnishing prostitutes to NCAA athletes. 
+
+https://apnews.com/article/miami-nevin-shapiro-1ee18bee3cb9401ebddf8ff6090242be
+
+Some of the mafia prostitutes involved in NCAA sports had exposure to the NXIVM cult and also the Clintons.
+
+https://www.miaminewtimes.com/news/alejandro-sanzs-wifes-miami-school-closed-by-state-tied-to-nxivm-sex-cult-founder-10295903/
+
+
 
 Everyone noticed when Page made the top ten richest list. In hindsight, this is the paper, notice that he went off to study at Chelsea Clinton's university and all of the attention to Bill Clinton's feelings and the utility in the engine. I was in Kyiv just after Hillary Clinton left the state department. I saw the new state department complex, and the Google complex. It was the largest embassy in the region if not the world. Really huge. Google's operations in Ukraine were built, to address the larger market, to deliver Russian language services to the Russian Federation.
 
